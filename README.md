@@ -1,0 +1,2 @@
+# Ekzz-botz
+BOTZ
